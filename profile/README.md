@@ -1,11 +1,11 @@
-# bellistek
+# unheaded bellicists
 
 *bellus* — pretty | *perennis* — everlasting
 
-day's eye opens at dawn, closes at dusk.
+Day's eye opens at dawn, daisy closes at dusk.
 
 war makes states. states make war.
-extraction builds empires.
+extinction builds headless empires.
 
 roots in bare metal.
 fabric woven through virtual leaves.
